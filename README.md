@@ -3,7 +3,7 @@
 - 💞️ I look forward to cooperation in the Forex market
 - 📫 How to reach me
  https://fbsarabe.blogspot.com/
-- 😄 Pronouns: merciful
+- 😄 Pronouns: Rhouma
 - ⚡Fun fact:
 https://fbs.ae/?ppk=argent
 
